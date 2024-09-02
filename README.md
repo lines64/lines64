@@ -7,6 +7,8 @@ I am Mark, writer and editor-in-chief over at [lines64.com](https://lines64.com)
 - 👯 I’m looking to collaborate on interesting sports betting projects
 - 📫 How to reach me: info@lines64.com
 
+I'd love to collaborate on any kind of sports betting project. Feel free to reach out!
+
 ---
 
 ![](https://komarev.com/ghpvc/?username=lines64&color=green)
